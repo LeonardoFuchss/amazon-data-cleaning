@@ -1,0 +1,1 @@
+# Tratamento-e-Limpeza-do-Dataset-de-Queimadas-na-Amaz-nia
